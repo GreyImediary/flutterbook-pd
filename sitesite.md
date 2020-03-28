@@ -1,1 +1,0 @@
-[сайт-лэндинг](http://pd-2020-1.std-259.ist.mospolytech.ru/#/)
